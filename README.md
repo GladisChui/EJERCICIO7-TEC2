@@ -1,0 +1,2 @@
+# EJERCICIO7-TEC2
+ 
